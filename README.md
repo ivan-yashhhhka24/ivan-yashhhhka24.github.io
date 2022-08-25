@@ -1,2 +1,2 @@
-# ivan-yashhhhka24.github.io
+# Иван Яштубаев
 Мой первый сайт
